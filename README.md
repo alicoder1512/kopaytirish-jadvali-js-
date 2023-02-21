@@ -1,0 +1,1 @@
+# kopaytirish-jadvali-js-
